@@ -1,0 +1,1 @@
+reduce to 47.00% in your slicer before printing
